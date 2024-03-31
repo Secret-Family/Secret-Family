@@ -1,5 +1,4 @@
-### Hi there 👋
-💲 Secret Family 💲
+###💲 Secret Family 💲
 💎 Plata 925 💎
 
 ❤️‍🔥 Cada una de nuestras joyas es trabajada a mano con técnicas de Joyería tradicionales, cuidando la calidad en cada proceso, eso hace de cada pieza un objeto único.
